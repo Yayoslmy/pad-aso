@@ -1,1 +1,0 @@
-https://introsistemas2025.blogspot.com/2025/05/departamentos-de-guatemala.html
